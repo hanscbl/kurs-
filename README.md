@@ -1,2 +1,2 @@
 # kurs-
-her tester vi pau
+her tester vi pau - ikke er det vanskelig. 
